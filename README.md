@@ -2,9 +2,9 @@
 
 **39 second** - Today Coin Master Free Spins Coins Links March 2024 Tap On The Collect Now Button And Then A Pop Up Menu Will Appear Asking You If You D Like To Open It In Coin Master
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
  
 Coin Master free spins are a prized commodity within the gaming community, essential for advancing and prospering in the popular mobile game, Coin Master. In the game, spins serve as the primary means of acquiring resources such as coins, attacks, and raids by spinning the slot machine. However, spins are limited, prompting players to seek out ways to obtain them for free.
 
